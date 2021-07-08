@@ -1,7 +1,9 @@
 # WhatsApp App UI
 
 - [My Linkedin](https://www.linkedin.com/in/sangvaleap-vanny-353b25aa/)
-- Email: sangvaleap.vanny@gmail.com
+- [My Upwork](https://www.upwork.com/freelancers/~01482fe63544bbcb48)
+- [My Instagram](https://www.instagram.com/sangvaleap.v/)
+- My Email: sangvaleap.vanny@gmail.com
 
 ![Screen_Shot_2021-06-30_at_3.07.32_PM](/uploads/67d25ce29e78f67b9ace343d6765006b/Screen_Shot_2021-06-30_at_3.07.32_PM.png)
 ![Screen_Shot_2021-06-30_at_3.07.47_PM](/uploads/a84518c0294caa6c580312c3e97812a8/Screen_Shot_2021-06-30_at_3.07.47_PM.png)
